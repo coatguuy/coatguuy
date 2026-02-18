@@ -10,7 +10,7 @@
 
 ###
 
-i like dbd. someone play dbd w me
+im fucking banned on dbd. fuck u lewis u banned my account 
 
 <h1 align="center">If only there was a little w-warmth...</h1>
 
