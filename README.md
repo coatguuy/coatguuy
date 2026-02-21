@@ -10,7 +10,7 @@
 
 ###
 
-im fucking banned on dbd. fuck u lewis u banned my account 
+yes i like coatguy  im sorry i dont like some niche fucking character that only 34 people know about
 
 <h1 align="center">If only there was a little w-warmth...</h1>
 
