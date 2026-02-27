@@ -47,5 +47,5 @@ yes i like coatguy  im sorry i dont like some niche fucking character that only 
 
 
 
-im dealing w mental health at the moment. life is lifing, and its hitting hard. i've been dealing with a bone tumor in my hip called an osteoid osteoma for 4 years. it's causing much pain and irritation so pls excuse me if ur talking to me n i randomly dip, switch moods or reply slower. i promise its not personal.
+im tumor free guys i beat it after 4 years yay
 
