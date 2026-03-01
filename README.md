@@ -10,7 +10,7 @@
 
 ###
 
-yes i like coatguy  im sorry i dont like some niche fucking character that only 34 people know about
+im literally always offtab so pls whisp to interact 
 
 <h1 align="center">If only there was a little w-warmth...</h1>
 
