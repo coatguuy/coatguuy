@@ -12,7 +12,7 @@
 
 im literally always offtab so pls whisp to interact 
 
-<h1 align="center">larp til i die...</h1>
+<h1 align="center">    𖹭       ︶︶︶︶༉‧₊˚</h1>
 
 ###
 
