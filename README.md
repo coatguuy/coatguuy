@@ -15,13 +15,14 @@ im literally always offtab so pls whisp to interact
 <h1 align="center">larp til i die...</h1>
 
 ###
-<img width="3000" height="1200" alt="Untitled491_20250601143239" src="https://github.com/user-attachments/assets/0f649c3e-6b82-46ff-95f1-13300f2b8977" />
 
 
-<h3 align="left"></h3> um hello my straw has most info about me. im open to make friends, im js very shy so pls int first. ok. ok? thanks
+
+
+<img width="3000" height="1200" alt="Untitled37_20260302202206" src="https://github.com/user-attachments/assets/85b2573d-3cde-4c03-b7fa-ac1dc01b6568" />
 
 ###
-
+<h3 align="left"></h3> um hello my straw has most info about me. im open to make friends, im js very shy so pls int first. ok. ok? thanks
 ###
 
 
