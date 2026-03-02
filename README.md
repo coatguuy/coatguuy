@@ -23,7 +23,7 @@ im literally always offtab so pls whisp to interact
 
 ###
 <h3 align="left"></h3> um hello my straw has most info about me. im open to make friends, im js very shy so pls int first. ok. ok? thanks
-###
+
 
 
 
