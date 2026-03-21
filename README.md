@@ -9,12 +9,13 @@
 
 ###
 
-im literally always offtab so pls whisp to interact 
 
-<h1 align="center">    𖹭       ︶︶︶︶༉‧₊˚</h1>
+
+<h1 align="center">    𖹭  
 
 ###
 
+![](https://now-playing-cards.vercel.app/now-playing/q?uid=312lwhgkbbkimlluopxdw4lnp7fi?si=8c57054b93a84129)
 
 
 
@@ -24,24 +25,18 @@ im literally always offtab so pls whisp to interact
 <h3 align="left"></h3> um hello my straw has most info about me. im open to make friends, im js very shy so pls int first. ok. ok? thanks
 
 
-
-
+![](https://now-playing-cards.vercel.app/now-playing/q?uid=312lwhgkbbkimlluopxdw4lnp7fi?si=44ffad5fa1914522&nd=1&dlsi=050369198b7b4572)
 
 ###
 
 <h3 align="left">
 
 ###
-c+h PLEASE unless i have dni in my name. which is unlikely
+
 
 ###
   
   
-
-
-
-
-
 
 
 
