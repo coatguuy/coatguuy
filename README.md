@@ -25,7 +25,7 @@
 <h3 align="left"></h3> um hello my straw has most info about me. im open to make friends, im js very shy so pls int first. ok. ok? thanks
 
 
-![](https://now-playing-cards.vercel.app/now-playing/q?uid=312lwhgkbbkimlluopxdw4lnp7fi?si=44ffad5fa1914522&nd=1&dlsi=050369198b7b4572)
+![tumblr_c38bc5c377ea6a8d166fa9717c609d24_940ec755_400](https://github.com/user-attachments/assets/ba218022-7ab2-4fb6-84c7-1cd89e7a2245)
 
 ###
 
