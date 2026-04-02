@@ -22,7 +22,7 @@
 
 
 ###
-<h3 align="left"></h3> um hello my straw has most info about me. im open to make friends, im js very shy so pls int first. ok. ok? thanks
+<h3 align="left"></h3> 
 
 
 ![tumblr_c38bc5c377ea6a8d166fa9717c609d24_940ec755_400](https://github.com/user-attachments/assets/ba218022-7ab2-4fb6-84c7-1cd89e7a2245)
