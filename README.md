@@ -11,7 +11,7 @@
 
 
 
-<h1 align="center">    𖹭  
+<h1 align="center">    ᶻ 𝘇 𐰁
 
 ###
 
@@ -25,7 +25,7 @@
 <h3 align="left"></h3> 
 
 
-![tumblr_c38bc5c377ea6a8d166fa9717c609d24_940ec755_400](https://github.com/user-attachments/assets/ba218022-7ab2-4fb6-84c7-1cd89e7a2245)
+
 
 ###
 
@@ -43,5 +43,4 @@
 
 
 
-im tumor free guys i beat it after 4 years yay
 
