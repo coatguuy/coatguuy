@@ -11,7 +11,7 @@
 
 
 
-<h1 align="center">    ᶻ 𝘇 𐰁
+<h1 align="center">    everytime someone draws coatguy without his jowls a year goes off my lifespan
 
 ###
 
