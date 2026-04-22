@@ -4,7 +4,8 @@
 ###
 <div align="center">
 
-<img width="1860" height="1080" alt="tumblr_747a87690222fd57b01a8daf411b9ff6_da7ed887_2048" src="https://github.com/user-attachments/assets/622f8d55-660a-4e37-97c9-d852494e60b1" />
+<img width="1000" height="1000" alt="tumblr_3c213882addaab3090726a63e94c5e4b_b29cdb82_1280 (2)" src="https://github.com/user-attachments/assets/4b671d94-6ad6-4d5a-8e22-7889a653163e" />
+
 
 
 ###
