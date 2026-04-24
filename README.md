@@ -10,7 +10,7 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 
 <p align="center">
-  <a href="https://spencerspagee.straw.page/">straw</a>
+  <a href="https://spencerspagee.straw.page/">𝔰𝔱𝔯𝔞𝔴</a>
 </p>
 <p align="center">
 ❄️
@@ -18,5 +18,5 @@
 
 ###
 <p align="center">
-  <a href="https://guns.lol/_sem">guns</a>
+  <a href="https://guns.lol/_sem">𝔤𝔲𝔫𝔰</a>
 </p>
