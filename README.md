@@ -6,6 +6,17 @@
 
 ###
 
-[straw](https://spencerspagee.straw.page/)
+
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 
+<p align="center">
+  <a href="https://spencerspagee.straw.page/">straw</a>
+</p>
+<p align="center">
+❄️
+</p> 
+
+###
+<p align="center">
+  <a href="https://guns.lol/_sem">guns</a>
+</p>
