@@ -20,3 +20,10 @@
 <p align="center">
   <a href="https://guns.lol/_sem">𝘨𝘶𝘯𝘴</a>
 </p>
+
+
+
+###
+
+
+!! fyi if u see a person dressed up in little nightmares cos. or either ninah, and they have a tiktok linked to their profile called "protagsno1fan" theyre problematic asFUCK dawg they make jokes about SA and find it funny and record strangers and post it on their tiktoks. they hid me and others when i tried to confront them ab it. and are usually sat in bakery
