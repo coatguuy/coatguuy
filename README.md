@@ -32,4 +32,4 @@
 
 ###
 
-!! fyi if u see a person dressed up in little nightmares cos or ninah, and they have their tiktok linked to their profile called "protagsno1fan" or smth; theyre problematic asFUCK dawg they make jokes about SA and find it funny and record strangers and post it on their tiktoks. they hid me and others when i tried to confront them ab it. and are usually sat in bakery so i advise u dont int w them as theyre a weird creep
+!! fyi if u see a person dressed up in little nightmares cos or ninah, and they have their tiktok linked to their profile called "protagsno1fan" or smth; theyre problematic asFUCK dawg they make jokes about SA and find it funny and record strangers and post it on their tiktoks js because they "look like" a ninah character 😐😐😐. they hid me and others when i tried to confront them ab it. and are usually sat in bakery so i advise u dont int w them as theyre a weird creep
