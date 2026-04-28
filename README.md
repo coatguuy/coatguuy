@@ -18,8 +18,7 @@
 
 ###
 
- <h1 align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Aldrich&size=19&letterSpacing=30%25&duration=3000&color=60FFF364&multiline=true&width=425&lines=Maybe+the+sun+will+warm+me.;One+last+t-t-time." alt="Typing SVG" /></a>
-
+ <h1 align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Offside&size=17&letterSpacing=30%25&duration=2000&pause=30&color=6AB48F&multiline=true&width=435&lines=Even+those+c-closest+will+;disappear.+S-Sooner+or+later." alt="Typing SVG" /></a>
 
 
 
