@@ -1,4 +1,5 @@
 <p align="center">
+<img width="840" height="224" alt="Untitled45_20260428174620" src="https://github.com/user-attachments/assets/5bf58801-8149-4b25-87e4-d81fcd30ddaa" />
 
 
 
@@ -7,6 +8,15 @@
 
 
 
+###
+
+
+
+###
+
+
+
+###
 
  <h1 align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Aldrich&size=19&letterSpacing=30%25&duration=3000&color=60FFF364&multiline=true&width=425&lines=Maybe+the+sun+will+warm+me.;One+last+t-t-time." alt="Typing SVG" /></a>
 
