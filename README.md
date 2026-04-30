@@ -30,7 +30,7 @@
 ###
 
 <p align="center">
-  <a href="https://spencerspagee.straw.page/">𝘴𝘵𝘳𝘢𝘸</a>
+
 </p>
 <p align="center">
 ❄️
