@@ -36,7 +36,7 @@
 ❄️
 </p> 
 
-###
+
 <p align="center">
   <a href="https://guns.lol/_sem">𝘨𝘶𝘯𝘴</a>
 </p>
@@ -44,7 +44,13 @@
 <p align="center">
 <a href="https://en.pronouns.page/@coatguuy">𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴 𝘱𝘢𝘨𝘦</a>
  </p>
+
+
+ 
 ###
+
+
+
 <p align="center">
  𝘪𝘮 𝘶𝘴𝘶𝘢𝘭𝘭𝘺 𝘢𝘭𝘸𝘢𝘺𝘴 𝘱𝘭𝘢𝘺𝘪𝘯𝘨 𝘥𝘣𝘥, 𝘧𝘦𝘦𝘭 𝘧𝘳𝘦𝘦 𝘵𝘰 𝘢𝘴𝘬 𝘵𝘰 𝘫𝘰𝘪𝘯 𝘮𝘦 #𝘧𝘶𝘤𝘬𝘴𝘰𝘭𝘰𝘲𝘶𝘦𝘶𝘦
 
