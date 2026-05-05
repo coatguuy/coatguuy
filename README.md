@@ -52,8 +52,9 @@
 
 
 <p align="center">
-if ur friends w  ollie and support his actions block me
+𝘪𝘧 𝘶𝘳 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 𝘸 𝘰𝘭𝘭𝘪𝘦 𝘢𝘯𝘥 𝘴𝘶𝘱𝘱𝘰𝘳𝘵 𝘩𝘪𝘴 𝘢𝘤𝘵𝘪𝘰𝘯𝘴 𝐛𝐥𝐨𝐜𝐤 𝐦𝐞
 
+ 
 ###
 
 
