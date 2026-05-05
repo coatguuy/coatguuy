@@ -57,6 +57,8 @@
  
 ###
 
+<p align="center">
+( @jazmustdiee , @american-venom and @beatle-paulie dont care ab what ollie has done and continue to be friends w him )
 
 ###
 
