@@ -52,7 +52,7 @@
 
 
 <p align="center">
- 𝘪𝘮 𝘶𝘴𝘶𝘢𝘭𝘭𝘺 𝘢𝘭𝘸𝘢𝘺𝘴 𝘱𝘭𝘢𝘺𝘪𝘯𝘨 𝘥𝘣𝘥, 𝘧𝘦𝘦𝘭 𝘧𝘳𝘦𝘦 𝘵𝘰 𝘢𝘴𝘬 𝘵𝘰 𝘫𝘰𝘪𝘯 𝘮𝘦 #𝘧𝘶𝘤𝘬𝘴𝘰𝘭𝘰𝘲𝘶𝘦𝘶𝘦
+if ur friends w  ollie and support his actions block me
 
 ###
 
